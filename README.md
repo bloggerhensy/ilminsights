@@ -1,1 +1,1 @@
-# ilminsights
+Elevate your spiritual journey in [Chicago with precise prayer times](https://ilminsights.com/), aligning your day with moments of reflection and devotion. Immerse yourself in the sacred rhythm, fostering tranquility in each praye
